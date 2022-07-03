@@ -1,1 +1,1 @@
-# -Finansa
+# Finansa
